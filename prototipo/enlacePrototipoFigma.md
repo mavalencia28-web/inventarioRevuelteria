@@ -1,0 +1,1 @@
+https://www.figma.com/design/YvTPqZFpVXI44WBqT2EUgn/Prototipo---inventario-revuelteria?node-id=0-1&t=m3lBzhpkJ3xWYBLL-1
